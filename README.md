@@ -4,6 +4,7 @@
 群主账号 1740635798
 若QQ群被封，这里会及时公布新群号。
 # QQ群文件同步睿客云盘
-链接：https://rec.ustc.edu.cn/share/b0aaf1f0-39f9-11f0-8afe-cfbe6d8d0af3密码：1958
+链接：https://rec.ustc.edu.cn/share/b0aaf1f0-39f9-11f0-8afe-cfbe6d8d0af3
+密码：1958
 # 微信群
 请加群主微信：TXDYCMR12138并说明来意，群主会拉你进群。
